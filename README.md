@@ -28,5 +28,5 @@
 
 ## 🤝 رابطہ اور سائنسی تعاون (Research & Sponsorship)
 اگر آپ اس تحقیق کو گرانٹ (Research Grant)، مالی امداد یا علمی مشاورت (Paid Consultancy) کے ذریعے سپورٹ کرنا چاہتے ہیں، تو درج ذیل پر رابطہ کریں:
-- **Email:** (یہاں اپنا ای میل ایڈریس درج کریں)
+- **Email:** (cont4act@gmail.com)
 - **Blog:** mastershabbir.blogspot.com
